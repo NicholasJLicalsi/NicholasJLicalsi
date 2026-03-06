@@ -1,3 +1,3 @@
 Nicholas Licalsi
 
-Probably working on something important...
+Managing Contractor Tracking and other reporting projects at TJ Inspection.
